@@ -6,3 +6,5 @@ Linea aggiuntiva
 scemo
 
 cornuto
+
+Gabriele di PALMA è scemo
